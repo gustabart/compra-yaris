@@ -55,7 +55,7 @@ Opción pesos
 
 En mi experiencia fue convenviente hacerla yo mismo. Fue bastante rápido (1 semana todo el proceso) y me ahorré plata.
 Tampoco me tomó mucho tiempo, me tuve que presentar 2 veces en el registro y me tomó 30' cada vez maso.
-En total pagué $ 1.080.000 y la agencia Viola me cobraba $ 1.400.000, y otras agencias que había averiguado cobraban mas.   
+En total pagué $ 1.080.000 y la agencia Viola me cobraba $ 1.400.000, y otras agencias que había averiguado cobraban mas (el valor también depende del lugar de patentado, cada provincia fíjas sus alícutas. La mas cara es la da CABA 3%, sigue BSAS 2,5%).   
 En algún momento se supone que se va a habiltar el RUNA y el sistema de patentamiento va a cambiar, se podría patentar 
 en cualquier registro del país y todo absolutamente on-line.  
 Pero al momento tuve que seguir el proceso tradicional que detallo a continuación:      
